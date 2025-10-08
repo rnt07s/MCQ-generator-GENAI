@@ -64,4 +64,4 @@ https://user-images.githubusercontent.com/83747548/234657453-7f40c25c-8c90-4a05-
 ## Author
 
 - Linkedin - [Rauneet Singh](https://www.linkedin.com/in/rauneet-singh-5676ab250/)
-- Email - rauneetsingh@vitbhopal.ac.in
+- Email - rauneetsingh07@gmail.com
